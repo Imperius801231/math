@@ -1,1 +1,1 @@
-# math
+# amazing mathematicians that I admire
